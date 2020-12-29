@@ -121,8 +121,8 @@ IT 行业相对于一般传统行业，发展更新速度更快，一旦停止�
     - [边界匹配符和组](/Article/PythonBasis/python14/4.md)
     - [re.sub](/Article/PythonBasis/python14/5.md)
     - [re.match 和 re.search](/Article/PythonBasis/python14/6.md)
-* [闭包](/Article/PythonBasis/python15/1.md)
-* [装饰器](/Article/PythonBasis/python16/1.md)
+* 15 [闭包](/Article/PythonBasis/python15/1.md)
+* 16 [装饰器](/Article/PythonBasis/python16/1.md)
 
 
 
