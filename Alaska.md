@@ -1,3 +1,89 @@
+https://www.youtube.com/watch?v=94-7ZKoryeM 2014 Hike
+
+https://www.youtube.com/watch?v=aDD7CbZRVWw Kayak
+
+https://www.youtube.com/watch?v=no3DXHBcT0s Feb 2021
+
+https://www.youtube.com/watch?v=BFKUrKVuLjA Feb 2019
+
+https://www.youtube.com/watch?v=eSmGSpoinI8
+
+Airbnb
+
+Point Lena Loop Way
+
+### Reservation dates
+
+Jun 30, 2021 - Jul 8, 2021
+
+### Itinerary #
+
+72075737128847
+
+### Confirmation
+
+36977138US2
+
+
+
+Houston to Anchorage – UA 567
+
+Jun 30, 2:35 PM–6:46 PM
+
+
+
+ [10'Cabover侧面扇子](http://alaskancampers.com/10-side-dinette-cabover/) 
+
+### Available Departure - $315.00
+
+### Depart
+
+**Haines**Tue Mar 23, 2:45 am
+
+### Arrive
+
+**Juneau/Auke Bay**Tue Mar 23, 7:15 am
+
+### Vessel
+
+Kennicott
+
+Make A Selection
+
+ [AMHS Our Route](https://dot.alaska.gov/amhs/route.shtml) 
+
+Alaska Outdoor Gear Rental, 540 W Potter Dr, Anchorage, AK 99518
+
+[ANC SUV rental](https://www.carrentals.com/carsearch?dagv=1&date1=03%2F29%2F2021&date2=04%2F08%2F2021&fdrp=0&loc2=&locn=Anchorage%2C%20AK%2C%20United%20States%20of%20America%20%28ANC-Ted%20Stevens%20Anchorage%20Intl.%29&rfrr=TG.LP.SrchWzd.Car&selCC=%5B%22suv%22%5D&selPageIndex=0&subm=1&time1=1030AM&time2=1030AM)
+
+ [Clothing Rental (Winter/Rain/Baselay)](https://aog.rezdy.com/catalog/323747/clothing-winter-rain-baselay) 
+
+[Best GaitersWe tested 6 pairs of the top gaiters on the market to help you choose which ones to take on your next...](https://www.outdoorgearlab.com/topics/climbing/best-gaiters)
+
+[Best Backcountry Ski Boots of 2021](https://www.outdoorgearlab.com/topics/snow-sports/best-backcountry-ski-boots)
+
+[Snowshoes](https://www.outdoorgearlab.com/t/snowshoes)
+
+[Ice Climbing](https://www.outdoorgearlab.com/t/ice-climbing)
+
+[All Snow Sports](https://www.outdoorgearlab.com/snow-sports)
+
+https://www.google.com/search?client=firefox-b-1-e&q=pants+in+alaska
+
+https://www.bigrays.com/
+
+[Men's Skiing Pants](https://www.amazon.com/gp/bestsellers/sporting-goods/2420221011/ref=pd_zg_hrsr_sporting-goods)
+
+[Men's Snowboarding Pants](https://www.amazon.com/gp/bestsellers/sporting-goods/2420233011/ref=pd_zg_hrsr_sporting-goods)
+
+[33,000ft Men's Fleece Lined Pants Softshell Ski Snow Pants Waterproof Outdoor Hiking Insulated Winter Pants](https://www.amazon.com/33-000ft-Softshell-Waterproof-Insulated/dp/B08P4SJ2KW/ref=sr_1_8?dchild=1&keywords=Fleece+Lined+Softshell+Pants&qid=1616372466&sr=8-8)
+
+https://www.amazon.com/Arctix-Advantage-Softshell-Pants-Realtree/dp/B01EFLCXQ8?ref_=ast_sto_dp&th=1&psc=1
+
+[HotHands Toe Warmers, 1-pair](https://www.walmart.com/ip/HotHands-Toe-Warmers-1-pair/19418993)
+
+[HotHands 9 Hour Adhesive Foot Warmers | 5 Pair](https://www.walmart.com/ip/HotHands-9-Hour-Adhesive-Foot-Warmers-5-Pair-Per-Pack/111104249)
+
 https://www.youtube.com/watch?v=y7Ulq5dvTpo ELDER SCROLLS Full Movie (2020) 
 
 https://www.alaska.org/destination/mccarthy
