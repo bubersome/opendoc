@@ -1,12 +1,20 @@
 
 
+
+
+
+
+https://postcalc.usps.com/Calculator/MailServices?country=0&ccode=US&oz=77479&omil=False&dz=34786&dmil=False&mdt=3%2F31%2F2021&mdz=10%3A59&m=6&ct3=True&p=4&o=13.603200000000001  13.9
+
+https://postcalc.usps.com/Calculator/MailServices?country=0&ccode=US&oz=77479&omil=False&dz=34786&dmil=False&mdt=3%2F31%2F2021&mdz=10%3A59&m=12
+
 [120 Pack Srixon Mix AAA Used Golf Balls](https://www.amazon.com/Pack-Srixon-Good-Quality-Balls/dp/B01LFKP3LO/ref=sr_1_67?dchild=1&m=A2WHGOX8NOQ9T3&marketplaceID=ATVPDKIKX0DER&qid=1617203004&s=merchant-items&sr=1-67) 
 
 [Titleist 120 Pro V1X Mix Mint Used Golf Balls](https://www.amazon.com/Titleist-2012-Mint-Refinished-Balls/dp/B00WGZ88DS/ref=sr_1_59?dchild=1&m=A2WHGOX8NOQ9T3&marketplaceID=ATVPDKIKX0DER&qid=1617202937&s=merchant-items&sr=1-59) 180 + 10
 
 [72 Bridgestone Tour B330-RX - Value (AAA) Grade - Recycled (Used) Golf Balls](https://www.amazon.com/Bridgestone-72-Tour-B330-RX-Recycled/dp/B0746CGLRQ/ref=sr_1_47?dchild=1&m=A2WHGOX8NOQ9T3&marketplaceID=ATVPDKIKX0DER&qid=1617202716&s=merchant-items&sr=1-47) 70 [LostGolfBalls](https://www.amazon.com/gp/help/seller/at-a-glance.html?ie=UTF8&seller=A2WHGOX8NOQ9T3)
 
-[Titleist 48 Pro V1x 2020 Near Perfect Mint AAAA Used Golf](https://www.amazon.com/Titleist-Pro-V1x-2020-Perfect/dp/B08Q362YCP/ref=sr_1_35?dchild=1&m=A2WHGOX8NOQ9T3&marketplaceID=ATVPDKIKX0DER&qid=1617202418&s=merchant-items&sr=1-35)  80 [LostGolfBalls](https://www.amazon.com/gp/help/seller/at-a-glance.html?ie=UTF8&seller=A2WHGOX8NOQ9T3) 我的价格 4*15 = 60
+[Titleist 48 Pro V1x 2020 Near Perfect Mint AAAA Used Golf](https://www.amazon.com/Titleist-Pro-V1x-2020-Perfect/dp/B08Q362YCP/ref=sr_1_35?dchild=1&m=A2WHGOX8NOQ9T3&marketplaceID=ATVPDKIKX0DER&qid=1617202418&s=merchant-items&sr=1-35)  80 [LostGolfBalls](https://www.amazon.com/gp/help/seller/at-a-glance.html?ie=UTF8&seller=A2WHGOX8NOQ9T3) 我的价格 4*15 = 60 重量 2.2kg 
 
 [24 Pro V1 2019 Used Golf Balls (White)](https://www.amazon.com/2019-Used-Golf-Balls-White/dp/B07WHV7F37/ref=sr_1_26?dchild=1&m=A2WHGOX8NOQ9T3&marketplaceID=ATVPDKIKX0DER&qid=1617201991&s=merchant-items&sr=1-26) 38 + 10.5 [Brand: Golfball Planet](https://www.amazon.com/s/ref=bl_dp_s_web_0?ie=UTF8&search-alias=aps&field-keywords=Golfball+Planet) 
 
