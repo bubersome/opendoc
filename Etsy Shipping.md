@@ -1,5 +1,9 @@
 
 
+
+
+https://support.shippingeasy.com/hc/en-us/articles/203085669-Priority-Mail-USPS-Commercial-Plus-Rate-Table
+
 [Recycled & Used Balls](https://www.amazon.com/Used-Golf-Balls/b/ref=dp_bc_aui_C_5?ie=UTF8&node=2515120011) 
 
 [Titleist 48 ProV1X 4A Golf Balls](https://www.amazon.com/48-Titleist-ProV1X-Golf-Balls/dp/B01IPRIFD8/ref=sr_1_29?_encoding=UTF8&c=ts&dchild=1&keywords=Recycled+%26+Used+Golf+Balls&qid=1617417035&s=golf&sr=1-29&ts_id=2515120011) 110 
