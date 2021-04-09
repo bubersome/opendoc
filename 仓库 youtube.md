@@ -1,6 +1,6 @@
 
 
-https://www.loopnet.com/search/industrial-properties/for-sale/?sk=fe7df37369aa037c17f1583b7449f2de&bb=wq6-19l1tJuvyp384kB 
+https://www.loopnet.com/search/industrial-properties/for-sale/?sk=eb51b0be5740f6e0cbef8149cfdf00a8&bb=sz10nm6_9Ihu833kB
 
 [美国仓库/休斯顿买仓库/美国商业地产投资](https://www.youtube.com/watch?v=UHm31gX70KA)
 
