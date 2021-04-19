@@ -8,15 +8,15 @@
 
 Django 实战：Python Web 典型模块与项目开发
 
-[WordPress](https://themeforest.net/category/wordpress)  [WordPress.com](https://en.wikipedia.org/wiki/WordPress.com)
+[WordPress](https://themeforest.net/category/wordpress)  [WordPress.com](https://en.wikipedia.org/wiki/WordPress.com) [安装](https://codex.wordpress.org/zh-cn:安装_WordPress)
 
-[Web Themes & Templates](https://themeforest.net/?auto_signin=true) [Code](https://codecanyon.net/?auto_signin=true) 
+[Web Themes & Templates](https://themeforest.net/?auto_signin=true) [Code](https://codecanyon.net/?auto_signin=true)  https://github.com/magicblack/maccms10 https://www.zhihu.com/question/59169777  https://themeforest.net/wordpress-hosting
 
  [Hands-On Machine Learning for Algorithmic Trading](https://learning.oreilly.com/library/view/hands-on-machine-learning/9781789346411) 
 
  [Practical Augmented Reality: A Guide to the Technologies, Applications, and Human Factors for AR and VR](https://learning.oreilly.com/library/view/practical-augmented-reality/9780134094328/)   
 
- [Microsoft HoloLens Developer’s Guide](https://learning.oreilly.com/library/view/microsoft-hololens-developers/9781786460851/)  https://learning.oreilly.com/search/?query=hololens&extended_publisher_data=true&highlight=true&include_assessments=false&include_case_studies=true&include_courses=true&include_playlists=true&include_collections=true&include_notebooks=true&include_sandboxes=true&include_scenarios=true&is_academic_institution_account=false&source=user&sort=relevance&facet_json=true&json_facets=true&page=0&include_facets=false&include_practice_exams=true
+ [Microsoft HoloLens Developer’s Guide](https://learning.oreilly.com/library/view/microsoft-hololens-developers/9781786460851/)  [Oreilly hololens](https://learning.oreilly.com/search/?query=hololens&extended_publisher_data=true&highlight=true&include_assessments=false&include_case_studies=true&include_courses=true&include_playlists=true&include_collections=true&include_notebooks=true&include_sandboxes=true&include_scenarios=true&is_academic_institution_account=false&source=user&sort=relevance&facet_json=true&json_facets=true&page=0&include_facets=false&include_practice_exams=true)
 
  [5-羟色胺转运蛋白](https://en.wikipedia.org/wiki/Serotonin_transporter)   [抗抑郁药](https://en.wikipedia.org/wiki/Antidepressant)   [选择性5-羟色胺再摄取抑制剂](https://en.wikipedia.org/wiki/Selective_serotonin_reuptake_inhibitor)     [“俄罗斯国家医学注册。Priligy（dapoxetine）薄膜包衣的片剂，为口服使用。充分的处方信息”](http://grls.rosminzdrav.ru/Grls_View_v2.aspx?idReg=86118&t=)  https://en.wikipedia.org/wiki/Dapoxetine  [神经递质](https://en.wikipedia.org/wiki/Neurotransmitter) 
 
