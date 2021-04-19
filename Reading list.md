@@ -4,7 +4,21 @@
 
 
 
+[[Django 搭建的一个视频 ... - GitHub](https://www.google.com/search?client=firefox-b-1-e&q=Django+%E8%A7%86%E9%A2%91%E7%BD%91%E7%AB%99)]
 
+Django 实战：Python Web 典型模块与项目开发
+
+[WordPress](https://themeforest.net/category/wordpress)  [WordPress.com](https://en.wikipedia.org/wiki/WordPress.com)
+
+[Web Themes & Templates](https://themeforest.net/?auto_signin=true) [Code](https://codecanyon.net/?auto_signin=true) 
+
+ [Hands-On Machine Learning for Algorithmic Trading](https://learning.oreilly.com/library/view/hands-on-machine-learning/9781789346411) 
+
+ [Practical Augmented Reality: A Guide to the Technologies, Applications, and Human Factors for AR and VR](https://learning.oreilly.com/library/view/practical-augmented-reality/9780134094328/)   
+
+ [Microsoft HoloLens Developer’s Guide](https://learning.oreilly.com/library/view/microsoft-hololens-developers/9781786460851/)  https://learning.oreilly.com/search/?query=hololens&extended_publisher_data=true&highlight=true&include_assessments=false&include_case_studies=true&include_courses=true&include_playlists=true&include_collections=true&include_notebooks=true&include_sandboxes=true&include_scenarios=true&is_academic_institution_account=false&source=user&sort=relevance&facet_json=true&json_facets=true&page=0&include_facets=false&include_practice_exams=true
+
+ [5-羟色胺转运蛋白](https://en.wikipedia.org/wiki/Serotonin_transporter)   [抗抑郁药](https://en.wikipedia.org/wiki/Antidepressant)   [选择性5-羟色胺再摄取抑制剂](https://en.wikipedia.org/wiki/Selective_serotonin_reuptake_inhibitor)     [“俄罗斯国家医学注册。Priligy（dapoxetine）薄膜包衣的片剂，为口服使用。充分的处方信息”](http://grls.rosminzdrav.ru/Grls_View_v2.aspx?idReg=86118&t=)  https://en.wikipedia.org/wiki/Dapoxetine  [神经递质](https://en.wikipedia.org/wiki/Neurotransmitter) 
 
 quad ruled note notepad
 
@@ -41,8 +55,6 @@ https://www.bc.com/locations/distribution-center-sugar-land/ [Engineered Wood](h
 [BicycleDutch](https://www.youtube.com/channel/UC67YlPrRvsO117gFDM7UePg)
 
 [Django](file:///Users/thundermac/Downloads/Python-10%E5%90%88%E9%9B%86/index.html#calibre_link-435)
-
-
 
 [丰田将在上海车展公开新款纯电动SUV](https://cn.nikkei.com/industry/icar/44100-2021-03-16-09-03-26.html) 
 
