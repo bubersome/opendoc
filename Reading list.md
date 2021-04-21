@@ -4,6 +4,10 @@
 
 
 
+
+
+[sec strategic cooperation agreement 战略合作协议](https://www.google.com/search?client=firefox-b-1-e&q=sec+strategic+cooperation+agreement)
+
 [[Django 搭建的一个视频 ... - GitHub](https://www.google.com/search?client=firefox-b-1-e&q=Django+%E8%A7%86%E9%A2%91%E7%BD%91%E7%AB%99)]
 
 Django 实战：Python Web 典型模块与项目开发
