@@ -2,6 +2,10 @@
 
 
 
+
+
+[Sketchup BASICS](https://www.youtube.com/watch?v=r2K6gmcc_jA)
+
 [GeForce GPU Passthrough for Windows Virtual Machine](https://nvidia.custhelp.com/app/answers/detail/a_id/5173)
 
 [网站制作](https://s.taobao.com/search?q=电商网站+制作&type=p&tmhkh5=&spm=a21wu.241046-us.a2227oh.d100&from=sea_1_searchbutton&catId=100) https://s.taobao.com/search?q=电商网站+制作&type=p&tmhkh5=&spm=a21wu.241046-us.a2227oh.d100&from=sea_1_searchbutton&catId=100
