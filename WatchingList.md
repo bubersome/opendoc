@@ -6,3 +6,5 @@ Kyan Palmer
 
  [呂志華](https://www.youtube.com/channel/UCep6BJWdCRB08KMJnAKxzLw) [韭菜日记](https://www.youtube.com/channel/UCPzoTXqcM7uF_T1dqBqZiUw)  [备胎](https://www.youtube.com/channel/UC7RL3bksyvu7rH7T6KFFkjw) [王剑](https://www.youtube.com/channel/UC8UCbiPrm2zN9nZHKdTevZA) [ARK Invest](https://www.youtube.com/c/Arkinvest2015/videos) 
 
+[onepetro](https://scholar.google.com/scholar?as_ylo=2021&q=onepetro&hl=en&as_sdt=0,44)
+
