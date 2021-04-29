@@ -4,6 +4,12 @@
 
 
 
+
+
+ [Logo Maker](https://placeit.net/logo-maker) 
+
+ [eCommerce](https://themeforest.net/category/ecommerce) 
+
 [Sketchup BASICS](https://www.youtube.com/watch?v=r2K6gmcc_jA)
 
 [GeForce GPU Passthrough for Windows Virtual Machine](https://nvidia.custhelp.com/app/answers/detail/a_id/5173)
