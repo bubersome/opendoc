@@ -8,5 +8,5 @@ Kyan Palmer
 
 [onepetro](https://scholar.google.com/scholar?as_ylo=2021&q=onepetro&hl=en&as_sdt=0,44)
 
- [尼泊尔的菩提村](https://www.ixigua.com/home/58334981935/?source=pgc_author_name&list_entrance=shortvideo)    [鞋底骑车环球旅行](https://www.ixigua.com/home/85330348665/?source=pgc_author_name&list_entrance=shortvideo)  
+ [尼泊尔的菩提村](https://www.ixigua.com/home/58334981935/?source=pgc_author_name&list_entrance=shortvideo)    [鞋底骑车环球旅行](https://www.ixigua.com/home/85330348665/?source=pgc_author_name&list_entrance=shortvideo)   [36氪](https://space.bilibili.com/90183256) 
 
