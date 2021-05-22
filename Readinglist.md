@@ -4,7 +4,7 @@
 
 
 
-
+**[陶氏理论](https://school.stockcharts.com/doku.php?id=market_analysis:dow_theory)**
 
 [FIRST LOOK at Disney's WALKING ROBOT "BABY GROOT" Animatronic](https://www.youtube.com/watch?v=SjMJRY2YPXY)
 
