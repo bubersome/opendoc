@@ -4,6 +4,12 @@
 
 
 
+intersect "下载" 油藏数值模拟
+
+[油气藏数值模拟软件](http://www.sunpetro.club/forum-171-1.html)
+
+[『INTERSECT』大型复杂油气藏数值模拟](http://www.sunpetro.club/thread-105093-1-1.html)
+
 **[陶氏理论](https://school.stockcharts.com/doku.php?id=market_analysis:dow_theory)**
 
 [FIRST LOOK at Disney's WALKING ROBOT "BABY GROOT" Animatronic](https://www.youtube.com/watch?v=SjMJRY2YPXY)
