@@ -4,6 +4,20 @@
 
 
 
+
+
+### [Camera Networks: The Acquisition and Analysis of Videos overWide Areas](https://1lib.us/book/1260300/a2c4a0) [Amit K. Roy-chowdhury](https://1lib.us/g/Amit K. Roy-chowdhury) 
+
+### [Multi-Camera Networks: Principles and Applications](https://1lib.us/book/602861/2cc2b4) [Hamid Aghajan](https://1lib.us/g/Hamid Aghajan)
+
+ [Computer Vision in Vehicle Technology](https://learning.oreilly.com/library/view/computer-vision-in/9781118868072) 
+
+ [Multi-Camera Networks](https://learning.oreilly.com/library/view/multi-camera-networks/9780123746337)   [Hamid Aghajan](https://learning.oreilly.com/search/?query=author%3A%22Hamid%20Aghajan%22&page=0) 
+
+ [Mergers, Acquisitions, and Other Restructuring Activities](https://learning.oreilly.com/library/view/mergers-acquisitions-and/9780128150764/B978012815075700005X.xhtml) 
+
+ [Radar](https://autonomoustuff.com/products?para1=Radar)   [FLIR ADK](https://autonomoustuff.com/products/flir-adk)  
+
 **[Re-Shafting](https://www.mitchellgolf.com/product-category/re-shafting/)** **[Shaft Pullers](https://www.mitchellgolf.com/product-category/re-shafting/shaft-pullers/)** **[Angle Machines](https://www.mitchellgolf.com/product-category/loft-lie/angle-machines/)** **[Mitchell Golf Steelclub® Signature Angle Machine for Irons, Hybrids & Metal Woods](https://www.mitchellgolf.com/shop/loft-lie/angle-machines/irons-hybrids-woods/steelclub-signature-angle-machine-irons-hybrids-metal-woods/)**  
 
 https://www.maggioregroup.com/
